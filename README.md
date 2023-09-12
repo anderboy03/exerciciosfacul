@@ -1,0 +1,2 @@
+# exerciciosfacul
+introduçao portifolio
